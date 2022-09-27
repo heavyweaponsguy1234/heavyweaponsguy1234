@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @heavyweaponsguy1234
-- 👀 I’m interested in programming
+- 👀 I’m interested in programming and technology
 - 🌱 I’m currently learning programming as well
 - 💞️ I’m looking to collaborate on cool things
 - 📫 How to reach me spam80191@gmail.com
